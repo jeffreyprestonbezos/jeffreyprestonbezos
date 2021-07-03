@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jeffreyprestonbezos
+- 👀 I’m interested in exploting workers!
+- 🌱 I’m currently learning about more efficient ways to piss in a bottle.
+- 💞️ I’m looking to collaborate on time tracking technology.
+- 📫 How to reach me: jeff@amazon.com (or go to space 😉)
